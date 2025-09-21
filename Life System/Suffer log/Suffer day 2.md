@@ -1,0 +1,1 @@
+Today is the 14th of September. I was hard enough to stop that tricky gooning urge and proved myself that I'm not that soft

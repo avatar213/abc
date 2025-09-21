@@ -1,0 +1,2 @@
+Today is Saturday. The day meant to be life changing, I thought I'll create a plan for my life, It'll be fun. The only thing I was seeking is dopamine from imagining life after reaching those goals. Getting MIT, winning IOI/ICPC/CTF and other competitions, master science, getting rich and athletic. WOOH. I need to slow down, just gonna aim for close goals, for far ones make the minimum I'll do for them
+I made thing easier, more certain. Gonna grind

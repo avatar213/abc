@@ -1,0 +1,2 @@
+Today is the 13th day of September. Felt really sleepy but kept pushing for future self. Didn't practice anything important but built the mindset, the system, the structure to do it. Embraced the pain
+Feeling the exhaustion of all journey but it worth it 100%

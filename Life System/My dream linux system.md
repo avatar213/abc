@@ -1,0 +1,13 @@
+- [x] Godly windows/app management, keybinds
+- [ ] Custommed nvim
+- [ ] Custommed obsidian
+- [ ] Fastfetch
+- [ ] Custommed terminal
+- [ ] Clipboard, screenshots fixed
+- [ ] Git integrated
+- [ ] Statusbar with wi-fi, ram, time and bluetooth
+- [ ] Fast windows switch
+- [ ] Cool dynamic wallpapers
+- [ ] Animations
+- [ ] Color pallete, cursor, font
+- [ ] High performance
